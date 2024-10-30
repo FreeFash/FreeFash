@@ -5,7 +5,7 @@ Just a highschool senior learning to code
 am girl
 am broke
 
-I like drawing stylized characters (anime 🤓)
+I like drawing stylized characters (anime ☝️🤓)
 
 I don't do much
 
