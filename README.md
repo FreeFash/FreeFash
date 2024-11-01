@@ -1,13 +1,17 @@
-Yooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
+Good day~✨👋🏾👧🏾
 
-Just a highschool senior learning to code
+Just a highschool senior from Canada trying to code!（￣︶￣）↗
 
-am girl
-am broke
+- Java 😭🎀
+- SQL 🤓✨
+- R 😆🎉
+- Python🤩💖
+- Learning: C, C#, & C++❤️‍🩹😣
 
-I like drawing stylized characters (anime ☝️🤓)
+I want to work on video game projects! o(*^＠^*)o 💖
+I'll try my best! ヽ(*。>Д<)o゜💖
 
-I don't do much
+I also like drawing stylized characters (anime ☝️🤓)
 
 <!---
 FreeFash/FreeFash is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
