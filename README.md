@@ -1,6 +1,6 @@
 Good day~✨👋🏾👧🏾
 
-Just a highschool senior from Canada trying to code!（￣︶￣）↗
+Just a high school senior from Canada trying to code!（￣︶￣）↗
 
 - Java
 - SQL
