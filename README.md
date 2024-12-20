@@ -1,4 +1,4 @@
-Good day~✨👋🏾👧🏾
+Good day~ o(*￣▽￣*)ブ
 
 Just a high school senior from Canada trying to code!（￣︶￣）↗
 
