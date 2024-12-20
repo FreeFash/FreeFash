@@ -2,14 +2,14 @@ Good day~✨👋🏾👧🏾
 
 Just a highschool senior from Canada trying to code!（￣︶￣）↗
 
-- Java 😭🎀
-- SQL 🤓✨
-- R 😆🎉
-- Python🤩💖
-- Learning: C, C#, & C++❤️‍🩹😣
+- Java
+- SQL
+- R
+- Python
+- Learning: C, C#, & C++
 
-I want to work on video game projects! o(*^＠^*)o 💖
-I'll try my best! ヽ(*。>Д<)o゜💖
+I want to work on video game projects! o(*^＠^*)o
+I'll try my best! ヽ(*。>Д<)o
 
 I also like drawing stylized characters (anime ☝️🤓)
 
